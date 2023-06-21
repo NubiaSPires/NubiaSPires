@@ -4,7 +4,7 @@
 # Heeeeyy guys <img src="https://media.giphy.com/media/f9jQLaKJJl6dL0AmmZ/giphy.gif" width="30px">
 
 #### Eu sou a Núbia, tenho 29 anos.
-Graduanda de Gestão Comercial.
+Graduanda em Gestão Comercial.
 
 Curso também: 
 
